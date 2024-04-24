@@ -1,1 +1,1 @@
-# ovgm-ministry
+ children of God youth ministry
